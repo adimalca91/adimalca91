@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Adi :)
+- 👀 I’m interested in Software Development and Software Engineering in Cybersecurity
+- 🌱 I’m currently learning Cybersecurity and Ethickal Hacking
+- 💞️ I’m looking to collaborate on ... well anything :)
+- 📫 How to reach me - adimalca91@gmail.com / LinkedIn @AdiMalca
